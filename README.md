@@ -8,5 +8,5 @@ He wore a *mankini*
 She wore a **what she wore**
 He said *“feeling chilly boi"*
 She said **“what she said”**
-As a consequence, *his balls shriveled up inside of him*.
+As a consequence, *his balls shriveled up inside of him *.
 And the world said **“what the world said”**
